@@ -11,7 +11,7 @@ Name: Tran Nguyen Quoc Cuong
 🌐 **Language skills** 🌐
 ----------
 
-Good English understanding: IELTS 8.0
+Good English understanding: IELTS 7.0
 
 Basic Japanese understanding
 
